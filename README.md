@@ -12,4 +12,4 @@
 
 [Google]( http://www.google.com/)
 
-![tajmahal](https://wikibio.in/wp-content/uploads/2019/04/Atif-Aslam.jpg)
+![Atifasalam](https://wikibio.in/wp-content/uploads/2019/04/Atif-Aslam.jpg)
